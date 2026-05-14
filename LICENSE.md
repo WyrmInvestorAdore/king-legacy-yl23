@@ -1,4 +1,4 @@
-#  
+#  ultimate Scripts for king legacy is the best king legacy Script, featuring invisibility and instant win. Safe and powerful for all your needs.
 
 
 
